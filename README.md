@@ -4,5 +4,5 @@
 
 
 
- 2) I am sai sankar, I like robotics and i am 
-     going to  create  it.
+ 2) I am sai sankar, I like gaming i would 
+     like to play pc games.
